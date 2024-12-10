@@ -1,1 +1,3 @@
-going to get deleted soon to merge into the [main repo](https://github.com/k1yrix/k1yrix.github.io)
+you're not going to find anything here
+
+no seriously. you **_will_** not find anything here. now go away.
